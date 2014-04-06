@@ -1,4 +1,4 @@
 This Project has Issues
 =======================
 
-I'm knot idding.
+I'm not kidding.
